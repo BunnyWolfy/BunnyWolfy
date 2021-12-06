@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding, built bot
 - 💞️ I’m looking for new friends
 - 📫 How to reach me
-# Discord:Anonymous-Chan#6666
+# Discord:BunBunny#8022
 # Tiktok:@bunnywolfey
 
 <!---
